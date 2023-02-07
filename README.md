@@ -11,4 +11,7 @@ My hobbies are:
 * designing dresses and sew *only for ladies*
 * painting, but not very good
 
+Here's a picture of me in traditional wear:
+![alt text](https://www.facebook.com/photo/?fbid=458079597544701&set=pob.100000279958035)
 
+If you like to connect with my [facebook account](https://www.facebook.com/priya.dharsini.98096721/): 
