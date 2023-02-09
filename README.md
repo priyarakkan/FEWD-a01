@@ -12,6 +12,6 @@ My hobbies are:
 * painting, but not very good
 
 Here's a picture of me in traditional wear:
-![alt text](https://www.facebook.com/photo/?fbid=458079597544701&set=pob.100000279958035)
+![alt text](https://scontent-lax3-2.xx.fbcdn.net/v/t31.18172-8/411480_458079597544701_1534473149_o.jpg?_nc_cat=106&amp;ccb=1-7&amp;_nc_sid=174925&amp;_nc_ohc=twgOW8393KIAX_CPJ6t&amp;_nc_ht=scontent-lax3-2.xx&amp;oh=00_AfCBV7nJvdNXY2avRhJ1Pncwdve_kw9xtBIE0RUd9V1uhw&amp;oe=640BBCC7)
 
 If you like to connect with my [facebook account](https://www.facebook.com/priya.dharsini.98096721/): 
